@@ -5,4 +5,4 @@ Hysteria
 art by @asarigg on twt/insta
 
 
-i lav kouao. awesome
+i lav kouao and koujaku. awesome
