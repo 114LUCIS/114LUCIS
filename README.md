@@ -1,8 +1,6 @@
 
 I'd eat you alive
-![IMG_3694](https://github.com/user-attachments/assets/53a03127-1e8b-421e-bacb-525da7a14582)
-
-art by @asarigg on twt/insta
+![IMG_0379](https://github.com/user-attachments/assets/6d6b20c5-a068-4f78-a471-8d286d662f40)
 
 
-i lav kouao and koujaku. awesome
+i still lav kouao and koujaku. awesome
