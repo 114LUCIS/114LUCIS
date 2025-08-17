@@ -1,6 +1,7 @@
 
 offtab warrior
-![IMG_0379](https://github.com/user-attachments/assets/6d6b20c5-a068-4f78-a471-8d286d662f40)
+
+![IMG_6753](https://github.com/user-attachments/assets/949017d9-a4ea-4449-afc2-90f1ec379fe5)
 
 
 i lav noctis
